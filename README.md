@@ -3,6 +3,11 @@ vajinismus-belirtileri
 
 http://www.vajinismus.eu/vajinismusun-belirtileri/
 
+http://www.vajinismus.eu/
+http://vajinismus-vajinismus.com/
+http://www.drcemkece.com/
+http://www.vajinismus1.com/
+
 Vajinismusun Belirtileri 
 
 Vajinismusun en temel belirtisi o an geldiğinde kişinin panik atak benzeri bir durum yaşamasıdır. Yani kişi eşini iter, kasılır, endişe, korku, kaygı duyar. Bilinci açık olsa da kontrolünü yitirir, kontrol bilinçdışının eline geçer. Sanki kişi bilinçdışı tarafından negatif bir hipnoz transı haline getirilir. Kişi zamanla aşağıdaki duygu ve düşüncelere kapılabilir:
